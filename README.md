@@ -1,2 +1,2 @@
 # AI_homework
-hello world
+11510487 孙加鸿
